@@ -1,1 +1,1 @@
-### Welcome to our Oakinite GitHub account! 🐶🪨
+### Welcome to Oakinite! 🐶🪨
